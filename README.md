@@ -1,5 +1,5 @@
 ## Times and places
-The course takes plase on Mondays at 10-13 in the following auditoriums:
+The course takes place on Mondays at 10-13 in the following auditoriums:
 
 - 19th of March: Infotechnology building, room ICT-A1
 - 26th of March: SCI-059 (KBI)
