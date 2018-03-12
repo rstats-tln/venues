@@ -7,4 +7,4 @@ The course takes place on Mondays at 10-13 in the following auditoriums:
 - 9th of April: SCI-059 (KBI)
 - 16th of April: SCI-057 (KBI)
 
-Please note that locations change little bit on each Monday! 
+Please note that locations change and recycle each week! 
